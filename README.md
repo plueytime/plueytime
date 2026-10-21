@@ -1,6 +1,7 @@
 im the mike who listens ! /ᐠ ˵> ⩊ <˵マ 
 
-<img width="1280" height="1223" alt="b6b2f9e140cf25c5598b21d6460716d597ea1d63-1632886891" src="https://github.com/user-attachments/assets/9c2c1bb4-c446-4a95-8b12-a2a460cd60fe" />
+<img width="565" height="565" alt="1" src="https://github.com/user-attachments/assets/8906e729-54af-4d28-9f11-0a6b943666cd" />
+
 
 
 hiya ! im pluey / comet ! i go by he / him only . 
