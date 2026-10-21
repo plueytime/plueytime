@@ -1,2 +1,3 @@
-<img src="blob:chrome-untrusted://media-app/dd7c932a-fe90-426f-85f7-cdf2964a664e" alt="Cat_Mike_overworld_playful.gif"/><img width="144" height="104" alt="image" src="https://github.com/user-attachments/assets/82ddd935-a40a-4841-bba6-6c412279d31b" />
-i made this only for pony town . 
+im the mike who listens ! /ᐠ ˵> ⩊ <˵マ 
+
+<img width="1280" height="1223" alt="b6b2f9e140cf25c5598b21d6460716d597ea1d63-1632886891" src="https://github.com/user-attachments/assets/9c2c1bb4-c446-4a95-8b12-a2a460cd60fe" />
