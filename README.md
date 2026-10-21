@@ -1,5 +1,5 @@
 im the mike who listens ! /ᐠ ˵> ⩊ <˵マ 
-<img src="https://github.com/user-attachments/assets/62ab5f86-851f-4c64-9c7d-02055ab46daa" alt="Alt text" />
+![hippo](https://github.com/plueytime/plueytime/blob/main/pluey.gif)
 
 
 hiya ! im pluey / comet ! i go by he / him only . 
